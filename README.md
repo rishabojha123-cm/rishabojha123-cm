@@ -7,6 +7,6 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on  data analyst 
 - 📫 How to reach me: ... rishabojha123@gmail.com
-
+ 
 
 -->
